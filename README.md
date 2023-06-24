@@ -13,4 +13,3 @@
           
 - I graduated as a biomedical doctor and researcher four years ago and now I'm on a career transition
 - I live in Duque de Caxias, Rio de Janeiro
--->
